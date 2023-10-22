@@ -1,4 +1,4 @@
-- 🔭 I’m currently working on 
+- 🔭 I’m currently working on an E-commerce app
 - 🌱 I’m currently learning android development
 - 👯 I’m looking to collaborate on projects
 - 🤔 I’m looking for help with Android concepts
