@@ -4,5 +4,5 @@
 - 🤔 I’m looking for help with Android concepts
 - 💬 Ask me about tech related stuff
 - 📫 How to reach me:twitter- @nkurumah_sr
-- 😄 Pronouns: he
+- 😄 Working on this profile too
 - ⚡ Fun fact: music drives me
