@@ -5,4 +5,4 @@
 - 💬 Ask me about tech related stuff
 - 📫 How to reach me:twitter- @nkurumah_sr
 - 😄 Working on this profile too
-- ⚡ Fun fact: music settles me
+- ⚡ Fun fact: music moves me
